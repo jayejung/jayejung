@@ -1,1 +1,3 @@
-Hello. I'm Jaye Jung.
+안녕하세요, jaye 입니다.
+
+⛱⛱⛱⛱⛱⛱⛱⛱⛱⛱⛱⛱⛱
